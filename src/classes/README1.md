@@ -33,4 +33,4 @@ If you have any questions, feel free to reach out to me:
 - Email: slvonderheide@gmail.com
         
 ## Video
-Link to video of how to use:        
+Link to video of how to use: https://drive.google.com/file/d/1eJtuIb98M69VwoRcVFPhj8l-Kgf8EGr8/view?usp=sharing       
